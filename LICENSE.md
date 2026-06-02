@@ -1,4 +1,4 @@
-# 
+# Mis à jour new token sniper bot modules complémentaires pour Mac OS | Instantané new token sniper bot modules complémentaires pour PC Windows. Avec tests de simulation et ordres au marché — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
